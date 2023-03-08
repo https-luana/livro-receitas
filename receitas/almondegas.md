@@ -1,1 +1,7 @@
-
+- 500 g de carne moida
+- 2 colheres (sopa) de azeite de oliva (30 ml)
+- 1 xicara de cebola bem picada (60 g)
+- 1 ovo
+- 150 g de farinha de rosca
+- sal a gosto
+- meus temperos favoritos a gosto
